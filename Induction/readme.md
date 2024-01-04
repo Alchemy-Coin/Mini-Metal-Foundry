@@ -1,0 +1,4 @@
+- [
+
+
+Just melting and de-slagging aluminum in a silicon carbide crucible with induction.](https://www.youtube.com/shorts/48eXRwn1_Rk?feature=share)
